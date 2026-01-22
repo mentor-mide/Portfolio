@@ -1,4 +1,4 @@
-# Adewale Ademide - Business Analyst
+# Adewale Ademide - Financial Economist
 ## Personal Data
 **Professional Resume:** [Take me there](https://drive.google.com/file/d/1j6_M8aM-t4sHR-J_wXVBIQq8POctdMt8/view)
 
