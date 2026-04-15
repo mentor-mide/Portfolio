@@ -1,12 +1,12 @@
-# Adewale Ademide - Financial Economist
+# Adewale Ademide - Finance Strategist and Business Sustainability Lead
 ## Personal Data
 **Professional Resume:** [Take me there](https://drive.google.com/file/d/1j6_M8aM-t4sHR-J_wXVBIQq8POctdMt8/view)
 
-**Personal Website:** [Take me there](https://ademideadewale.wixsite.com/profile/)
+**Personal Website:** [Take me there](https://mentormide.wixsite.com/profile/)
 
-**LinkedIn Page:** [Take me there](https://www.linkedin.com/in/ademide-adewale/)
+**LinkedIn Page:** [Take me there](https://www.linkedin.com/in/mentor-mide/)
 
-**Blog Page:** [Take me there](https://medium.com/@im__ademide/)
+**Blog Page:** [Take me there](https://medium.com/@mentor.mide/)
 
 **WhatsApp:** [Send a Message](https://wa.me/+2347036744164)
 
